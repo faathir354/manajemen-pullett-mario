@@ -1,1 +1,0 @@
-# manajemen-pullett-mario
